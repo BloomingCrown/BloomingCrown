@@ -2,7 +2,7 @@
 <img width="1200" height="670" alt="image" src="https://github.com/user-attachments/assets/d77f30db-2994-459a-9899-501724e87af0" />
 ♥ʜᴀɪ ʜᴀɪ! ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴘʀᴏғɪʟᴇ♥
 
-|| [en pronouns](https://en.pronouns.page/@Simon_bloom) || [pinterest](https://pin.it/7Jut1K9fE) || [pronouns cc](https://pronouns.cc/@BloomingCrown) ||
+|| [en pronouns](https://en.pronouns.page/@Simon_bloom) || [pinterest](https://pin.it/7Jut1K9fE) || [pronouns cc](https://pronouns.cc/@BloomingCrown) || [atabook!](https://yellowpetals.atabook.org/) ||
 
 •.:°❀×═════════×❀°:.•
 
